@@ -32,7 +32,7 @@ So, you got your Pressable Coupon code now the question is how you will redeem y
 
 Here is a step-by-step guide.
 
-Step 1: Visit the Pressable website and select the hosting plan that best suits your needs.
+Step 1: Visit the [Pressable website](https://bit.ly/3VOYFxX) and select the hosting plan that best suits your needs.
 
 Step 2: During the checkout process, look for the "Coupon Code" or "Promo Code" field.
 
@@ -105,6 +105,8 @@ Each of these providers offers its unique features, pricing plans, and strengths
 In the ever-evolving world of WordPress hosting, Pressable stands out as a top-tier provider, offering unbeatable performance, robust security, and unparalleled support.
 
 Pressable promo codes and discounts, making their already affordable hosting plans even more wallet-friendly.
+
+[{Get 50% Off Prssable Promo deal}](https://bit.ly/3VOYFxX)
 
 From their 30% off coupon code to their 50% off monthly plans deal, Pressable offers a range of savings opportunities to suit every budget and need.
 
