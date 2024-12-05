@@ -28,7 +28,7 @@ Get [25% off](https://bit.ly/3VOYFxX) monthly plans coupon. This Pressable disco
 
 ## How to Claim Pressable Coupon Code (step-by-step guide)
 
-So, you got your [Pressable Coupon code]((https://seller-forum.com/t/pressable-coupon-discount-25-off-promo-for-2024/5255) now the question is how you will redeem your promo code.
+So, you got your [Pressable Coupon code](https://seller-forum.com/t/pressable-coupon-discount-25-off-promo-for-2024/5255) now the question is how you will redeem your promo code.
 
 Here is a step-by-step guide.
 
