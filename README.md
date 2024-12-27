@@ -4,7 +4,7 @@ I have listed all the latest available [Pressable discounts](https://bit.ly/3VOY
 
 In the world of WordPress hosting, Pressable stands out as a top-tier provider, offering lightning-fast performance, robust security, and unparalleled support.
 
-Get ready to save big time! With these amazing [Pressable Coupon](https://github.com/Johniereed/Pressable-coupons) codes.
+Get ready to save big time! With these amazing [Pressable Coupon](https://johniereed.github.io/Pressable-coupon/) codes.
 
 ## Pressable Coupon Code: Get 30% Discount
 
